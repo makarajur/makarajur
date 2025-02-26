@@ -1,16 +1,22 @@
-## Hi there 👋
+my name is rai (ria makaraju)
+he/they
+intj
+yolo
 
-<!--
-**makarajur/makarajur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hey
+i see ur face ur up to smth
+u make me nervous w ur love gaze
+drunk on the poison in my blood veins
+i'll never be the same (yeah)
 
-Here are some ideas to get you started:
+spinning in my room
+feeling kind of strange
+wishing i could get another taste of your
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+sweet 
+he heet
+venom nom nom
+yeah all i need
+he heed
+is your poison
+
